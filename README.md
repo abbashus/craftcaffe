@@ -1,2 +1,3 @@
 # 🎨 Craft Caffe  ☕
-Online store for great home products
+
+Your gifting partner. Customized steel and wood products, home decor, t-shirts, wall art and more...
